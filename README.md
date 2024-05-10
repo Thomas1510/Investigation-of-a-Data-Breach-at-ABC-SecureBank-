@@ -5,4 +5,4 @@
 💼 Consideration of regulatory compliance and communication plans ensured transparency and adherence to privacy laws, highlighting the importance of legal and ethical standards in cybersecurity.
 🔒 This project challenged my investigative and problem-solving skills, providing invaluable insights into handling data breaches in sensitive environments.
 🚀 Watch this space for updates on my journey through cybersecurity challenges and solutions!
-Extion Infotech Company Linkedin link 👉 : https://www.linkedin.com/company/extion-infotech/
+# Extion Infotech Company Linkedin link 👉 : https://www.linkedin.com/company/extion-infotech/
